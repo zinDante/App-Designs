@@ -1,2 +1,2 @@
 # App-Designs
-page designs for some apps
+Some of my page designs 🙂
